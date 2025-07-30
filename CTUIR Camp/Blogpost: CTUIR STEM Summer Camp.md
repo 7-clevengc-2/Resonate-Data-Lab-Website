@@ -57,3 +57,21 @@ Catelyn Clevenger
 
 **Reviewers and Facilitator**s:
 Professor Jordan Wirfs-Brock, Brandon Martinez Serrano, Catelyn Clevenger, Liuyi Lyu, Ananya Mehrotra, Deo Rubangakene, and Sarena Yousuf.
+
+# Friday: Making Instruments
+
+Friday marked our final day with the CTUIR kids, wrapping up a week full of exploration, creativity, and learning about sound. Over the past few days, we introduced the children, ages 8 to 11, to the sounds in their surroundings and guided them in discovering that sound is produced by vibrations. We showed them how pitch changes based on tension and length, and how everyday materials can be used to make sound-based tools and instruments. This last session tied everything together with a fun and expressive craft activity.
+
+We began by demonstrating a few simple instruments we had made beforehand: a rubber band guitar using a small cardboard box, and a flute crafted from straws cut at different lengths. These models helped us show how sound can change depending on what materials you use and how you shape them. When we asked the kids if they played any instruments or noticed interesting sounds in their daily life, they were mostly quiet at first. But once we moved into the hands-on portion, their excitement and creativity took over. We provided a wide range of materials, including tissue boxes, cardboard tubes, rubber bands of different thicknesses, lolly sticks, glue, scissors, buttons, and colorful paper. After dividing the group into smaller teams, each child began building and decorating their own instrument. Some focused on structure, others on decoration, and many did both. What stood out was the way they began personalizing their creations. One guitar was named Cardi B, linking the instrument to a singer the student admired. Others gave their instruments names and imagined their sounds as voices or characters. It was a clear sign that they were connecting to the activity not just through science, but through self-expression.
+
+At the end of the session, we held a mini performance where everyone had the chance to show off their instruments and the sounds they created. Some strummed confidently, while others talked about how they decorated their guitars and what made them unique. Throughout the activity, we heard them casually use concepts we had introduced earlier in the week, like how tighter rubber bands made higher-pitched sounds. Even those who hadn’t spoken much at the start of the week were eager to share by the end. This session, and the week as a whole, reminded us that learning doesn’t always have to begin with facts and definitions. Sometimes, it begins with play, with creating something new from familiar materials, and with the freedom to explore without pressure. These kids went from listening to experimenting, from observing to making, and from being hesitant to expressing themselves with pride. Watching that transformation, and hearing the joy in the sounds they created, was the most rewarding part of the experience.
+
+
+## Contributors
+
+**Creators**:
+Sarena Yousuf and Professor Jordan Wirfs-Brock
+
+**Reviewers and Facilitator**s:
+Professor Jordan Wirfs-Brock, Brandon Martinez Serrano, Catelyn Clevenger, Liuyi Lyu, Ananya Mehrotra, Deo Rubangakene, and Sarena Yousuf.
+
